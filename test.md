@@ -7,6 +7,5 @@ Chilling the dough intensifies the flavor of the dough and retains its shape in 
 
 If you like to cut out the cookie dough, roll the dough into a large disk, chill, then roll out again before cutting out into shapes.
 
-I hope you enjoy making this matcha flavored Matcha Green Tea Cookies recipe. They are perfect for a cozy afternoon snack or for your cookie swap during the holiday season!
 
 hello my name is aldwin
