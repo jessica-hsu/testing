@@ -1,4 +1,4 @@
-The ingredients are simple: butter, sugar, and flour. They often include vanilla extract, but I omit it because it’s too strong for matcha flavor.
+ingredients are simple: butter, sugar, and flour. They often include vanilla extract, but I omit it because it’s too strong for matcha flavor.
 
 These cookies are crisp rather than chewy or soft. If you have tried and love shortbread cookies, you can expect a similar crispy texture.
 
